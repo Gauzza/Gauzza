@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Gauzza
-- 🌱 I’m currently learning a lot!!!...
+
 
 
 <!---
